@@ -31,4 +31,4 @@ Federal hiring freeze
 
 Trump shows CNN documentation claiming to resigns from 400 businesses but does not divest ownership
 
-
+In press briefing Sean Spicer says that Spanish version of WH website is coming soon.
