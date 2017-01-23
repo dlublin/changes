@@ -28,3 +28,7 @@ Gag rule back in effect for foreign aid
 Skype seats available to remote journalists in briefing room
 
 Federal hiring freeze
+
+Trump shows CNN documentation claiming to resigns from 400 businesses but does not divest ownership
+
+
