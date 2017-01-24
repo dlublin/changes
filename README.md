@@ -58,7 +58,7 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 
 [WH closes comment phone line](http://variety.com/2017/digital/news/white-house-switchboard-facebook-messenger-1201967138/)
 
-## Day 5
+## Day 5 – Tuesday, Jan 24th, 2017
 [WH tells EPA staff are censored and grants are frozen](http://www.huffingtonpost.com/entry/environmental-protection-grants-staff_us_5886825be4b0e3a7356b575f?pon75akll8ei5dn29)
 
 [WH tells USDA it is not allowed to publish any public documents](https://www.buzzfeed.com/dinograndoni/trump-usda)
@@ -68,3 +68,5 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 [Moderate Republicans suggest states can opt to keep Obamacare](http://www.vox.com/policy-and-politics/2017/1/24/14359094/obamacare-replacement-cassidy-collins)
 
 [Alt-right in US targets French elections for disinformation campaign](https://www.buzzfeed.com/ryanhatesthis/inside-the-private-chat-rooms-trump-supporters-are-using-to)
+
+[Trump WH places hold on horse 'soring' ban](http://www.commercialappeal.com/story/news/local/2017/01/24/trump-administration-places-horse-soring-ban-hold/96968756/)
