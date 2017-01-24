@@ -13,7 +13,7 @@ Removal of ACA begins
 
 [National Day Of Patriotic Devotion](https://s3.amazonaws.com/public-inspection.federalregister.gov/2017-01798.pdf)
 
-## Day 2
+## Day 2 – Saturday, Jan 21st, 2017
 First press briefing  about size of inauguration crowd
 
 // Side Note: [How to headcount an event](https://www.theatlantic.com/technology/archive/2017/01/womens-march-protest-count/514166/)
@@ -24,14 +24,14 @@ Parks service and other government agencies forbidden from tweeting
 
 Is it okay to punch a Nazi?
 
-## Day 3
+## Day 3 – Sunday, Jan 22nd, 2017
 Kellyanne Conway uses the term 'alternative facts' on Sunday morning shows
 
 [Trump reverses on campaign promise to release tax records; no way to know his conflicts of interest](http://www.npr.org/sections/thetwo-way/2017/01/22/511095966/trump-aide-says-he-wont-release-tax-returns-claiming-most-people-dont-care)
 
 [Lawsuit claiming Trump has already violated constitution over receiving foreign payments to be filed this week](https://www.nytimes.com/2017/01/22/us/politics/trump-foreign-payments-constitution-lawsuit.html?_r=0)
 
-## Day 4
+## Day 4 – Monday, Jan 23rd, 2017
 Withdrawl from TPP
 
 Gag rule back in effect for foreign aid
@@ -55,6 +55,8 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 [Anti-fascist protester shot at alt-right rally](https://www.splcenter.org/hatewatch/2017/01/23/alt-right-event-seattle-devolves-chaos-and-violence-outside-truth-twisting-inside)
 
 [NEA is a tiny portion of the budget and may lose funding. Where does its money go?](http://www.neafunded.us/)
+
+[WH closes comment phone line](http://variety.com/2017/digital/news/white-house-switchboard-facebook-messenger-1201967138/)
 
 ## Day 5
 [WH tells EPA staff are censored and grants are frozen](http://www.huffingtonpost.com/entry/environmental-protection-grants-staff_us_5886825be4b0e3a7356b575f?pon75akll8ei5dn29)
