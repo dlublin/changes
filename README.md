@@ -27,6 +27,8 @@ Kellyanne Conway uses the term 'alternative facts' on Sunday morning shows
 
 [Trump reverses on campaign promise to release tax records; no way to know his conflicts of interest](http://www.npr.org/sections/thetwo-way/2017/01/22/511095966/trump-aide-says-he-wont-release-tax-returns-claiming-most-people-dont-care)
 
+[Lawsuit claiming Trump has already violated constitution over receiving foreign payments to be filed this week](https://www.nytimes.com/2017/01/22/us/politics/trump-foreign-payments-constitution-lawsuit.html?_r=0)
+
 ## Day 4
 Withdrawl from TPP
 
