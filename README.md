@@ -7,6 +7,8 @@ FHA Premium Cuts Suspended
 
 Removal of ACA begins
 
+[National Day Of Patriotic Devotion](https://s3.amazonaws.com/public-inspection.federalregister.gov/2017-01798.pdf)
+
 ## Day 2
 First press briefing  about size of inauguration crowd
 
