@@ -70,3 +70,7 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 [Alt-right in US targets French elections for disinformation campaign](https://www.buzzfeed.com/ryanhatesthis/inside-the-private-chat-rooms-trump-supporters-are-using-to)
 
 [Trump WH places hold on horse 'soring' ban](http://www.commercialappeal.com/story/news/local/2017/01/24/trump-administration-places-horse-soring-ban-hold/96968756/)
+
+[Calls for hurricane aid to Mississippi ignored by WH](http://www.nbcnews.com/news/weather/officials-beg-trump-send-help-after-storms-kill-20-across-n711071)
+
+[WH revives Keystone XL pipeline](https://www.nytimes.com/2017/01/24/us/politics/keystone-dakota-pipeline-trump.html)
