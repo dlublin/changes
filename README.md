@@ -41,5 +41,5 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 [SD GOP lawmakers move to override voters on anti-corruption law](https://twitter.com/kylegriffin1/status/823885038324510723)
 
 ## Day 5
-
+[WH website contains false data about homicide rate in DC](https://twitter.com/michaelhayes/status/823649555472404488)
 
