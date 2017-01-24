@@ -7,6 +7,8 @@ Removal of climate change and civil rights information from White House website
 
 [WH website contains false data about homicide rate in DC to prop up their agenda](https://twitter.com/michaelhayes/status/823649555472404488)
 
+[Anti-fascist protester shot at alt-right rally (not widely reported until day 3/4)](https://www.splcenter.org/hatewatch/2017/01/23/alt-right-event-seattle-devolves-chaos-and-violence-outside-truth-twisting-inside)
+
 FHA Premium Cuts Suspended
 
 Removal of ACA begins
@@ -53,8 +55,6 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 // Side Note: [Secret recording from DAPL meeting in December 2016 where execs say they will restart once Trump is inaugurated](https://twitter.com/ShaunKing/status/823915535301804032)
 
 [SD GOP lawmakers move to override voters on anti-corruption law](https://twitter.com/kylegriffin1/status/823885038324510723)
-
-[Anti-fascist protester shot at alt-right rally](https://www.splcenter.org/hatewatch/2017/01/23/alt-right-event-seattle-devolves-chaos-and-violence-outside-truth-twisting-inside)
 
 [NEA is a tiny portion of the budget and may lose funding. Where does its money go?](http://www.neafunded.us/)
 
