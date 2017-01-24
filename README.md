@@ -45,4 +45,6 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 [SD GOP lawmakers move to override voters on anti-corruption law](https://twitter.com/kylegriffin1/status/823885038324510723)
 
 ## Day 5
-[EPA staff are censored and grants are frozen](http://www.huffingtonpost.com/entry/environmental-protection-grants-staff_us_5886825be4b0e3a7356b575f?pon75akll8ei5dn29)
+[WH tells EPA staff are censored and grants are frozen](http://www.huffingtonpost.com/entry/environmental-protection-grants-staff_us_5886825be4b0e3a7356b575f?pon75akll8ei5dn29)
+
+[WH tells USDA it is not allowed to publish any public documents](https://www.buzzfeed.com/dinograndoni/trump-usda)
