@@ -1,5 +1,7 @@
 # Tracking changes since Trump has taken office
 
+Also be sure to check the FoxNews first 100 days tracker: http://www.foxnews.com/politics/trump-100-days.html
+
 ## Day 1 – Friday, Jan 20th, 2017
 Removal of climate change and civil rights information from White House website
 
