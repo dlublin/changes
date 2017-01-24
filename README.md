@@ -3,6 +3,8 @@
 ## Day 1 – Friday, Jan 20th, 2017
 Removal of climate change and civil rights information from White House website
 
+[WH website contains false data about homicide rate in DC to prop up their agenda](https://twitter.com/michaelhayes/status/823649555472404488)
+
 FHA Premium Cuts Suspended
 
 Removal of ACA begins
@@ -43,6 +45,4 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 [SD GOP lawmakers move to override voters on anti-corruption law](https://twitter.com/kylegriffin1/status/823885038324510723)
 
 ## Day 5
-[WH website contains false data about homicide rate in DC](https://twitter.com/michaelhayes/status/823649555472404488)
-
 [EPA staff are censored and grants are frozen](http://www.huffingtonpost.com/entry/environmental-protection-grants-staff_us_5886825be4b0e3a7356b575f?pon75akll8ei5dn29)
