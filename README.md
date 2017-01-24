@@ -21,6 +21,8 @@ Is it okay to punch a Nazi?
 ## Day 3
 Kellyanne Conway uses the term 'alternative facts' on Sunday morning shows
 
+[Trump reverses on campaign promise to release tax records; no way to know his conflicts of interest](http://www.npr.org/sections/thetwo-way/2017/01/22/511095966/trump-aide-says-he-wont-release-tax-returns-claiming-most-people-dont-care)
+
 ## Day 4
 Withdrawl from TPP
 
