@@ -60,6 +60,8 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 
 [WH closes comment phone line](http://variety.com/2017/digital/news/white-house-switchboard-facebook-messenger-1201967138/)
 
+[Trump official portrait may have American flag poorly added in post](http://www.konbini.com/en/lifestyle/the-white-house-unveils-donald-trumps-official-failed-portrait/)
+
 ## Day 5 – Tuesday, Jan 24th, 2017
 [WH tells EPA staff are censored and grants are frozen](http://www.huffingtonpost.com/entry/environmental-protection-grants-staff_us_5886825be4b0e3a7356b575f?pon75akll8ei5dn29)
 
