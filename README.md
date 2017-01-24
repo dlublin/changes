@@ -42,6 +42,8 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 
 [Sean Spicer hints that DAPL will be pushed through by Trump WH](http://www.independent.co.uk/news/world/americas/donald-trump-press-conference-dakota-access-pipline-sean-spicer-white-house-a7542481.html)
 
+// Side Note: [Secret recording from DAPL meeting in December 2016 where execs say they will restart once Trump is inaugurated](https://twitter.com/ShaunKing/status/823915535301804032)
+
 [SD GOP lawmakers move to override voters on anti-corruption law](https://twitter.com/kylegriffin1/status/823885038324510723)
 
 [Anti-fascist protester shot at alt-right rally](https://www.splcenter.org/hatewatch/2017/01/23/alt-right-event-seattle-devolves-chaos-and-violence-outside-truth-twisting-inside)
