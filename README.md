@@ -13,6 +13,7 @@ Removal of ACA begins
 
 ## Day 2
 First press briefing  about size of inauguration crowd
+
 // Side Note: [How to headcount an event](https://www.theatlantic.com/technology/archive/2017/01/womens-march-protest-count/514166/)
 
 Parks service and other government agencies forbidden from tweeting
