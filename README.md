@@ -1,6 +1,6 @@
 # Tracking changes since Trump has taken office
 
-## Day 1
+## Day 1 – Friday, Jan 20th, 2017
 Removal of climate change and civil rights information from White House website
 
 FHA Premium Cuts Suspended
@@ -37,3 +37,9 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 [Trump falsely claims with no evidence that illegal ballots cost him the popular vote](https://www.washingtonpost.com/news/post-politics/wp/2017/01/23/at-white-house-trump-tells-congressional-leaders-3-5-million-illegal-ballots-cost-him-the-popular-vote)
 
 [Sean Spicer hints that DAPL will be pushed through by Trump WH](http://www.independent.co.uk/news/world/americas/donald-trump-press-conference-dakota-access-pipline-sean-spicer-white-house-a7542481.html)
+
+[SD GOP lawmakers move to override voters on anti-corruption law](https://twitter.com/kylegriffin1/status/823885038324510723)
+
+## Day 5
+
+
