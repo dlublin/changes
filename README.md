@@ -80,3 +80,5 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 [WH revives Keystone XL pipeline](https://www.nytimes.com/2017/01/24/us/politics/keystone-dakota-pipeline-trump.html)
 
 [Elizabeth Warren will vote yay for Ben Carson for HUD](http://thehill.com/regulation/315911-warren-backs-carson-for-hud)
+
+[15 Senate Democrats including Chuck Schumer vote to confirm Mike Pompeo for CIA Director](https://twitter.com/jamiedupree/status/823702422749057028)
