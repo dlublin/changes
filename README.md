@@ -14,7 +14,7 @@ First press briefing  about size of inauguration crowd
 
 Parks service and other government agencies forbidden from tweeting
 
-Awkward first visit to CIA (fake applause?)
+[Awkward first visit to CIA includes phony applause](http://www.thedailybeast.com/cheats/2017/01/23/cbs-trump-brought-cheerers-to-cia-visit.html)
 
 Is it okay to punch a Nazi?
 
