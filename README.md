@@ -57,3 +57,4 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 
 [Moderate Republicans suggest states can opt to keep Obamacare](http://www.vox.com/policy-and-politics/2017/1/24/14359094/obamacare-replacement-cassidy-collins)
 
+[Alt-right in US targets French elections for disinformation campaign](https://www.buzzfeed.com/ryanhatesthis/inside-the-private-chat-rooms-trump-supporters-are-using-to)
