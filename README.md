@@ -35,3 +35,5 @@ Trump shows CNN documentation claiming he resigns from 400 businesses but does n
 In press briefing Sean Spicer says that Spanish version of WH website is coming soon.
 
 [Trump falsely claims with no evidence that illegal ballots cost him the popular vote](https://www.washingtonpost.com/news/post-politics/wp/2017/01/23/at-white-house-trump-tells-congressional-leaders-3-5-million-illegal-ballots-cost-him-the-popular-vote)
+
+[Sean Spicer hints that DAPL will be pushed through by Trump WH](http://www.independent.co.uk/news/world/americas/donald-trump-press-conference-dakota-access-pipline-sean-spicer-white-house-a7542481.html)
