@@ -52,3 +52,6 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 [WH tells USDA it is not allowed to publish any public documents](https://www.buzzfeed.com/dinograndoni/trump-usda)
 
 [Trump pledges to cut environmental regulations for auto-makers](https://twitter.com/Reuters/status/823898807519809537)
+
+[Moderate Republicans suggest states can opt to keep Obamacare](http://www.vox.com/policy-and-politics/2017/1/24/14359094/obamacare-replacement-cassidy-collins)
+
