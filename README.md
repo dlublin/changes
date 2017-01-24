@@ -44,6 +44,8 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 
 [SD GOP lawmakers move to override voters on anti-corruption law](https://twitter.com/kylegriffin1/status/823885038324510723)
 
+[Anti-fascist protestor shot at alt-right rally](https://www.splcenter.org/hatewatch/2017/01/23/alt-right-event-seattle-devolves-chaos-and-violence-outside-truth-twisting-inside)
+
 ## Day 5
 [WH tells EPA staff are censored and grants are frozen](http://www.huffingtonpost.com/entry/environmental-protection-grants-staff_us_5886825be4b0e3a7356b575f?pon75akll8ei5dn29)
 
