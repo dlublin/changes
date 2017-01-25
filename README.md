@@ -86,3 +86,5 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 [National Park posts then deletes climate change related tweets](http://www.motherjones.com/politics/2017/01/badlands-national-park-donald-trump-climate)
 
 [Four journalists face felony charges after covering inauguration unrest](https://www.theguardian.com/media/2017/jan/24/journalists-charged-felonies-trump-inauguration-unrest)
+
+[House of Representatives passes bill barring tax money for abortions including subsidized insurance under ACA](http://www.cnn.com/2017/01/24/politics/house-approves-bill-barring-taxpayer-money-for-abortions/index.html)
