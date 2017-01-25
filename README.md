@@ -79,7 +79,7 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 
 [Calls for hurricane aid to Mississippi ignored by WH](http://www.nbcnews.com/news/weather/officials-beg-trump-send-help-after-storms-kill-20-across-n711071)
 
-[WH revives Keystone XL pipeline](https://www.nytimes.com/2017/01/24/us/politics/keystone-dakota-pipeline-trump.html)
+[WH revives Keystone XL and DAPL pipelines](https://www.nytimes.com/2017/01/24/us/politics/keystone-dakota-pipeline-trump.html)
 
 [Elizabeth Warren will vote yay for Ben Carson for HUD](http://thehill.com/regulation/315911-warren-backs-carson-for-hud)
 
