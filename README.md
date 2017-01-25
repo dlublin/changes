@@ -81,4 +81,4 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 
 [Elizabeth Warren will vote yay for Ben Carson for HUD](http://thehill.com/regulation/315911-warren-backs-carson-for-hud)
 
-[15 Senate Democrats including Chuck Schumer vote to confirm Mike Pompeo for CIA Director](https://twitter.com/jamiedupree/status/823702422749057028)
+[14 Senate Democrats including Chuck Schumer vote to confirm Mike Pompeo for CIA Director](https://theintercept.com/2017/01/23/14-senate-democrats-fall-in-line-behind-trump-cia-pick-who-left-door-open-to-torture/)
