@@ -92,3 +92,5 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 [House of Representatives passes bill barring tax money for abortions including subsidized insurance under ACA](http://www.cnn.com/2017/01/24/politics/house-approves-bill-barring-taxpayer-money-for-abortions/index.html)
 
 [Planning for Scientist March on DC begins](https://www.washingtonpost.com/news/speaking-of-science/wp/2017/01/24/are-scientists-going-to-march-on-washington/)
+
+[Trump pick for head of FCC is anti net neutrality, does not need to be confirmed by congress](https://www.wired.com/2017/01/trumps-fcc-pick-signals-end-net-neutrality-efforts/)
