@@ -11,6 +11,12 @@ Removal of climate change and civil rights information from White House website
 
 FHA Premium Cuts Suspended
 
+Avg price of gas in US: $2.31
+
+Unemployeement rate: 4.7%
+
+DOW / NASDAQ: 19,827.25 / 5,555.33
+
 Removal of ACA begins
 
 [National Day Of Patriotic Devotion](https://s3.amazonaws.com/public-inspection.federalregister.gov/2017-01798.pdf)
