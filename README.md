@@ -71,7 +71,7 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 
 [Trump pledges to cut environmental regulations for auto-makers](https://twitter.com/Reuters/status/823898807519809537)
 
-[Moderate Republicans suggest states can opt to keep Obamacare](http://www.vox.com/policy-and-politics/2017/1/24/14359094/obamacare-replacement-cassidy-collins)
+[Moderate Republicans suggest plan where states can opt to keep Obamacare; WH has no comment](http://www.vox.com/policy-and-politics/2017/1/24/14359094/obamacare-replacement-cassidy-collins)
 
 [Alt-right in US targets French elections for disinformation campaign](https://www.buzzfeed.com/ryanhatesthis/inside-the-private-chat-rooms-trump-supporters-are-using-to)
 
