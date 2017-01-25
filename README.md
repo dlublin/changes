@@ -94,3 +94,5 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 [Planning for Scientist March on DC begins](https://www.washingtonpost.com/news/speaking-of-science/wp/2017/01/24/are-scientists-going-to-march-on-washington/)
 
 [Trump pick for head of FCC is anti net neutrality, does not need to be confirmed by congress](https://www.wired.com/2017/01/trumps-fcc-pick-signals-end-net-neutrality-efforts/)
+
+[NYC and DC gather for impromptu noDAPL marches upon news of revival](https://twitter.com/PalomaC_P/status/824058548850225152)
