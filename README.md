@@ -3,6 +3,12 @@
 Also be sure to check the FoxNews first 100 days tracker: http://www.foxnews.com/politics/trump-100-days.html
 
 ## Day 1 – Friday, Jan 20th, 2017
+Avg price of gas in US: $2.31
+
+Unemployeement rate: 4.7%
+
+DOW / NASDAQ: 19,827.25 / 5,555.33
+
 Removal of climate change and civil rights information from White House website
 
 [WH website contains false data about homicide rate in DC to prop up their agenda](https://twitter.com/michaelhayes/status/823649555472404488)
@@ -10,12 +16,6 @@ Removal of climate change and civil rights information from White House website
 [Anti-fascist protester shot at alt-right rally (not widely reported until day 3/4)](https://www.splcenter.org/hatewatch/2017/01/23/alt-right-event-seattle-devolves-chaos-and-violence-outside-truth-twisting-inside)
 
 FHA Premium Cuts Suspended
-
-Avg price of gas in US: $2.31
-
-Unemployeement rate: 4.7%
-
-DOW / NASDAQ: 19,827.25 / 5,555.33
 
 Removal of ACA begins
 
