@@ -16,7 +16,9 @@ Removal of ACA begins
 [National Day Of Patriotic Devotion](https://s3.amazonaws.com/public-inspection.federalregister.gov/2017-01798.pdf)
 
 ## Day 2 – Saturday, Jan 21st, 2017
-First press briefing  about size of inauguration crowd
+[The Women's Marches might be largest demonstration in US history](http://www.vox.com/2017/1/22/14350808/womens-marches-largest-demonstration-us-history-map)
+
+First WH press briefing in which Spicer lies about size of inauguration crowd
 
 // Side Note: [How to headcount an event](https://www.theatlantic.com/technology/archive/2017/01/womens-march-protest-count/514166/)
 
@@ -88,3 +90,5 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 [Four journalists face felony charges after covering inauguration unrest](https://www.theguardian.com/media/2017/jan/24/journalists-charged-felonies-trump-inauguration-unrest)
 
 [House of Representatives passes bill barring tax money for abortions including subsidized insurance under ACA](http://www.cnn.com/2017/01/24/politics/house-approves-bill-barring-taxpayer-money-for-abortions/index.html)
+
+[Planning for Scientist March on DC begins](https://www.washingtonpost.com/news/speaking-of-science/wp/2017/01/24/are-scientists-going-to-march-on-washington/)
