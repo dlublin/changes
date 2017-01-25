@@ -103,6 +103,8 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 
 [Trump pick for head of FCC is anti net neutrality, does not need to be confirmed by congress](https://www.wired.com/2017/01/trumps-fcc-pick-signals-end-net-neutrality-efforts/)
 
+[Trump vows to use fed intervention to deal with gun violence in Chicago](http://mobile.reuters.com/article/idUSKBN15907T)
+
 [NYC and DC gather for impromptu noDAPL marches upon news of revival](https://twitter.com/PalomaC_P/status/824058548850225152)
 
 [House GOP closed case on Flint water crisis last month but the water is still undrinkable](https://www.nytimes.com/2017/01/24/us/flint-michigan-water.html)
