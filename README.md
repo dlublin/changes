@@ -67,6 +67,8 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 ## Day 5 – Tuesday, Jan 24th, 2017
 [WH tells EPA staff are censored and grants are frozen](http://www.huffingtonpost.com/entry/environmental-protection-grants-staff_us_5886825be4b0e3a7356b575f?pon75akll8ei5dn29)
 
+[WH instructs EPA to remove climate change data from its website](http://www.reuters.com/article/us-usa-trump-epa-climatechange-idUSKBN15906G)
+
 [WH tells USDA it is not allowed to publish any public documents](https://www.buzzfeed.com/dinograndoni/trump-usda)
 
 [Trump pledges to cut environmental regulations for auto-makers](https://twitter.com/Reuters/status/823898807519809537)
