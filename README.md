@@ -139,6 +139,8 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 
 [Trump lies about homicide rates in Philly](https://www.washingtonpost.com/news/post-nation/wp/2017/01/26/president-trump-says-homicides-in-philadelphia-are-terribly-increasing-they-are-actually-down/)
 
+[UK Prime Minister Theresea May speaks at GOP rally in Philly](http://www.cnn.com/2017/01/26/politics/theresa-may-republican-retreat-visit-speech/)
+
 [Republians and Democrats alike are eager to get in on $1 trillion spending blitz](https://www.nytimes.com/2017/01/25/us/donald-trump-infrastructure-spending-trillion-dollars-states.html)
 
 [See how Senate Democrats voted on cabinet approval](https://cabinet.bjacobel.com/Democrat)
