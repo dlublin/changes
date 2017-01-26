@@ -2,6 +2,8 @@
 
 Also be sure to check the FoxNews first 100 days tracker: http://www.foxnews.com/politics/trump-100-days.html
 
+And this other tracker: https://www.track-trump.com/
+
 ## Day 1 – Friday, Jan 20th, 2017
 Avg price of gas in US: $2.31
 
@@ -112,3 +114,31 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 [Feds are seeking felony charges (max 10 yrs in prison and a $25k fine) for 200+ inauguration protestors](https://thinkprogress.org/federal-prosecutors-slap-felony-charges-on-more-than-200-inauguration-protesters-92e3154a8fd1#.2xc9trze0)
 
 [Mexican Peso is sharply falling vs the US Dollar on reports Trump will order border wall tomorrow](https://twitter.com/SteveKopack/status/824097889798459393)
+
+## Day 6 - Wednesday, Jan 25th, 2017
+
+[Executive order to bring back CIA 'black sites' for torture](http://apps.washingtonpost.com/g/documents/national/read-the-draft-of-the-executive-order-on-cia-black-sites/2288/)
+
+[Executive order to build a border wall](https://www.whitehouse.gov/the-press-office/2017/01/25/executive-order-border-security-and-immigration-enforcement-improvements)
+
+[44% of GOP voters believe false narrative about inauguration size](http://www.nydailynews.com/news/politics/gopers-agree-false-claim-trump-inauguration-attendance-article-1.2955099)
+
+[Trump plans to move forward with bogus investigation into voter fraud](http://nypost.com/2017/01/25/trump-calls-for-major-investigation-into-alleged-voter-fraud/)
+
+// Side Note: [Multiple people in Trump's administration / family fall in the category of people who are registered in more than one state](https://www.washingtonpost.com/news/post-politics/wp/2017/01/26/it-turns-out-trump-son-in-law-jared-kushner-is-also-registered-to-vote-in-two-states/)
+
+## Day 7 - Thursday, Jan 26, 2017
+
+[Trump proposed immigration ban doesn't include countries with ties to his businesses](https://www.bloomberg.com/graphics/2017-trump-immigration-ban-conflict-of-interest)
+
+[Trump proposes tax on Mexican imports to pay for wall](https://www.nytimes.com/2017/01/26/us/politics/mexico-wall-tax-trump.html)
+
+[Mexican leader cancels trip to US over wall](https://www.nytimes.com/2017/01/26/world/mexicos-president-cancels-meeting-with-trump-over-wall.html)
+
+[Philly shows up to protest Trump](https://twitter.com/soit_goes/status/824674853743632386)
+
+[Trump lies about homicide rates in Philly](https://www.washingtonpost.com/news/post-nation/wp/2017/01/26/president-trump-says-homicides-in-philadelphia-are-terribly-increasing-they-are-actually-down/)
+
+[Republians and Democrats alike are eager to get in on $1 trillion spending blitz](https://www.nytimes.com/2017/01/25/us/donald-trump-infrastructure-spending-trillion-dollars-states.html)
+
+[See how Senate Democrats voted on cabinet approval](https://cabinet.bjacobel.com/Democrat)
