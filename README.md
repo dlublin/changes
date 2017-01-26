@@ -146,3 +146,5 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 [Republians and Democrats alike are eager to get in on $1 trillion spending blitz](https://www.nytimes.com/2017/01/25/us/donald-trump-infrastructure-spending-trillion-dollars-states.html)
 
 [See how Senate Democrats voted on cabinet approval](https://cabinet.bjacobel.com/Democrat)
+
+[Chelsea Manning calls for strong unapologetic progressives to lead](https://www.theguardian.com/commentisfree/2017/jan/25/compromise-doesnt-work-political-opponents-chelsea-manning)
