@@ -141,6 +141,8 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 
 [UK Prime Minister Theresea May speaks at GOP rally in Philly](http://www.cnn.com/2017/01/26/politics/theresa-may-republican-retreat-visit-speech/)
 
+[WH sends 'gag order' to agencies limiting communication with congress](http://abcnews.go.com/Politics/trump-agency-memo-gags-staff-communications-democrats/story?id=45068455)
+
 [Republians and Democrats alike are eager to get in on $1 trillion spending blitz](https://www.nytimes.com/2017/01/25/us/donald-trump-infrastructure-spending-trillion-dollars-states.html)
 
 [See how Senate Democrats voted on cabinet approval](https://cabinet.bjacobel.com/Democrat)
