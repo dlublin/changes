@@ -145,8 +145,6 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 
 [Republians and Democrats alike are eager to get in on $1 trillion spending blitz](https://www.nytimes.com/2017/01/25/us/donald-trump-infrastructure-spending-trillion-dollars-states.html)
 
-[See how Senate Democrats voted on cabinet approval](https://cabinet.bjacobel.com/Democrat)
-
 [Chelsea Manning calls for strong unapologetic progressives to lead](https://www.theguardian.com/commentisfree/2017/jan/25/compromise-doesnt-work-political-opponents-chelsea-manning)
 
 [Pipeline spill in Iowa](http://www.desmoinesregister.com/story/news/2017/01/25/pipeline-leaks-thousands-gallons-diesel-northern-iowa/97051728/)
@@ -158,3 +156,5 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 A few months after Billy Bush is fired for lewd comments, Jenna Bush is a regular on the Today Show.
 
 [Wisconsin student guilty of black church arsons seeks to create campus white supremacist group](http://www.foxnews.com/us/2017/01/27/wisconsin-student-guilty-black-church-arsons-wants-pro-white-group.html)
+
+[There might not be a replacement for ACA after all](http://nymag.com/daily/intelligencer/2017/01/gop-quietly-admits-there-will-be-no-obamacare-replacement.html)
