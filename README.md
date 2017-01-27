@@ -158,3 +158,13 @@ A few months after Billy Bush is fired for lewd comments, Jenna Bush is a regula
 [Wisconsin student guilty of black church arsons seeks to create campus white supremacist group](http://www.foxnews.com/us/2017/01/27/wisconsin-student-guilty-black-church-arsons-wants-pro-white-group.html)
 
 [There might not be a replacement for ACA after all](http://nymag.com/daily/intelligencer/2017/01/gop-quietly-admits-there-will-be-no-obamacare-replacement.html)
+
+[March for Life in DC](http://www.foxnews.com/us/2017/01/27/life-is-winning-pence-fires-up-march-for-life-crowd.html)
+
+[Trump meets British PM](https://www.nytimes.com/interactive/2017/01/27/us/politics/donald-trump-theresa-may-live.html)
+
+[Did Trump have photos altered to make his hands look bigger?](https://twitter.com/DanaSchwartzzz/status/825030464037593091)
+
+[California non-profit begins plans for floating cities[(https://www.nytimes.com/2017/01/27/world/australia/climate-change-floating-islands.html?_r=0)
+
+[WH considers lifting Russian sanctions](http://www.businessinsider.com/trump-sanctions-russia-lift-2017-1)
