@@ -150,3 +150,11 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 [Chelsea Manning calls for strong unapologetic progressives to lead](https://www.theguardian.com/commentisfree/2017/jan/25/compromise-doesnt-work-political-opponents-chelsea-manning)
 
 [Pipeline spill in Iowa](http://www.desmoinesregister.com/story/news/2017/01/25/pipeline-leaks-thousands-gallons-diesel-northern-iowa/97051728/)
+
+[Miami-Dade mayor moves to comply with Trump crackdown on ‘sanctuary’ counties](http://www.miamiherald.com/news/local/community/miami-dade/article128984759.html)
+
+## Day 8 - Friday, Jan 27, 2017
+
+A few months after Billy Bush is fired for lewd comments, Jenna Bush is a regular on the Today Show.
+
+[Wisconsin student guilty of black church arsons seeks to create campus white supremacist group](http://www.foxnews.com/us/2017/01/27/wisconsin-student-guilty-black-church-arsons-wants-pro-white-group.html)
