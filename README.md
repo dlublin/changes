@@ -170,3 +170,5 @@ A few months after Billy Bush is fired for lewd comments, Jenna Bush is a regula
 [WH considers lifting Russian sanctions](http://www.businessinsider.com/trump-sanctions-russia-lift-2017-1)
 
 [Trump failure to keep promise to release tax returns results in largest WH petition ever](http://www.huffingtonpost.com/entry/trump-tax-returns-petition-breaks-record_us_588a5a51e4b0c5656a62d5eb)
+
+[Trump advisor Gary Cohn recieves $285 million compensation package from Goldman Sachs](https://www.nytimes.com/2017/01/25/business/dealbook/goldman-sachs-gary-cohn-285-million-departure-package.html)
