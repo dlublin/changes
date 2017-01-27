@@ -148,3 +148,5 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 [See how Senate Democrats voted on cabinet approval](https://cabinet.bjacobel.com/Democrat)
 
 [Chelsea Manning calls for strong unapologetic progressives to lead](https://www.theguardian.com/commentisfree/2017/jan/25/compromise-doesnt-work-political-opponents-chelsea-manning)
+
+[Pipeline spill in Iowa](http://www.desmoinesregister.com/story/news/2017/01/25/pipeline-leaks-thousands-gallons-diesel-northern-iowa/97051728/)
