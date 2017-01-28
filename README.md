@@ -183,6 +183,4 @@ A few months after Billy Bush is fired for lewd comments, Jenna Bush is a regula
 
 //  Side Note: [Google calls back staffers that may have trouble getting back into US](http://www.foxnews.com/politics/2017/01/28/google-calls-staffers-back-to-us-after-trump-order-on-immigration-report-says.html)
 
-[McConnell says they won't change fillabuster rules to get SCOTUS nominees](http://www.foxnews.com/politics/2017/01/28/mcconnell-refuses-to-say-whether-nuclear-option-in-supreme-court-nomination-is-on-table.html)
-
-
+[SCOTUS nominee announcement next Thursday, McConnell hints at changing filibuster rules](http://www.foxnews.com/politics/2017/01/28/mcconnell-refuses-to-say-whether-nuclear-option-in-supreme-court-nomination-is-on-table.html) (not sure why FoxNews refers to this as the 'nuclear option')
