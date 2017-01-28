@@ -178,3 +178,9 @@ A few months after Billy Bush is fired for lewd comments, Jenna Bush is a regula
 [Trump says Christian refugees will get priority](http://www.cnn.com/2017/01/27/politics/trump-christian-refugees/index.html)
 
 [Refugees already approved are being turned away or detained at the border](https://www.nytimes.com/2017/01/28/us/refugees-detained-at-us-airports-prompting-legal-challenges-to-trumps-immigration-order.html?_r=0)
+
+//  Side Note: [Google calls back staffers that may have trouble getting back into US](http://www.foxnews.com/politics/2017/01/28/google-calls-staffers-back-to-us-after-trump-order-on-immigration-report-says.html)
+
+[McConnell says they won't change fillabuster rules to get SCOTUS nominees](http://www.foxnews.com/politics/2017/01/28/mcconnell-refuses-to-say-whether-nuclear-option-in-supreme-court-nomination-is-on-table.html)
+
+
