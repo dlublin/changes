@@ -119,6 +119,8 @@ In press briefing Sean Spicer says that Spanish version of WH website is coming 
 
 [Executive order to bring back CIA 'black sites' for torture](http://apps.washingtonpost.com/g/documents/national/read-the-draft-of-the-executive-order-on-cia-black-sites/2288/)
 
+[Christians reflect on the failure of American Christianity](https://sojo.net/articles/american-christianity-has-failed)
+
 [Executive order to build a border wall](https://www.whitehouse.gov/the-press-office/2017/01/25/executive-order-border-security-and-immigration-enforcement-improvements)
 
 [44% of GOP voters believe false narrative about inauguration size](http://www.nydailynews.com/news/politics/gopers-agree-false-claim-trump-inauguration-attendance-article-1.2955099)
