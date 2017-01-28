@@ -185,4 +185,4 @@ A few months after Billy Bush is fired for lewd comments, Jenna Bush is a regula
 
 [SCOTUS nominee announcement next Thursday, McConnell hints at changing filibuster rules](http://www.foxnews.com/politics/2017/01/28/mcconnell-refuses-to-say-whether-nuclear-option-in-supreme-court-nomination-is-on-table.html) (not sure why FoxNews refers to this as the 'nuclear option')
 
-[Russian arrests two officers charged with treason for providing info to the US – did the Trump WH out them to Moscow after election?](nytimes.com/2017/01/27/world/europe/russia-hacking-us-election.html)
+[Russia arrests two officers charged with treason for providing info to the US](nytimes.com/2017/01/27/world/europe/russia-hacking-us-election.html)
