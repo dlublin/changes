@@ -170,3 +170,11 @@ A few months after Billy Bush is fired for lewd comments, Jenna Bush is a regula
 [Trump failure to keep promise to release tax returns results in largest WH petition ever](http://www.huffingtonpost.com/entry/trump-tax-returns-petition-breaks-record_us_588a5a51e4b0c5656a62d5eb)
 
 [Trump advisor Gary Cohn recieves $285 million compensation package from Goldman Sachs](https://www.nytimes.com/2017/01/25/business/dealbook/goldman-sachs-gary-cohn-285-million-departure-package.html)
+
+[Malia Obmama joins pipeline protest at Sundance](http://www.mercurynews.com/2017/01/27/malia-obama-joins-dakota-access-pipeline-protest-at-sundance)
+
+## Day 9, Saturday, Jan 28, 2017
+
+[Trump says Christian refugees will get priority](http://www.cnn.com/2017/01/27/politics/trump-christian-refugees/index.html)
+
+[Refugees already approved are being turned away or detained at the border](https://www.nytimes.com/2017/01/28/us/refugees-detained-at-us-airports-prompting-legal-challenges-to-trumps-immigration-order.html?_r=0)
